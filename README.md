@@ -4,7 +4,7 @@
 
 ## Hi there 👋
 
-I have worked on multiple academic and non-academic projects. I continue to push myself to work on bigger and more exciting projects.
+I have worked on multiple academic projects. I continue to push myself to work on bigger and more exciting projects.
 
 #
 
